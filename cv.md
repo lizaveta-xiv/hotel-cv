@@ -54,8 +54,8 @@ Zawsze lubię utrzymywać porządek w pokojach i dbać o ergonomikę miejsca pra
 
 ## __Edukacja:__
 
-— Szkoła średnia.
-— Kwalifikacja T.12/TG.13 (Obsługa gości w obiekcie świadczącym usługi hotelarskie).
+- Szkoła średnia.
+- Kwalifikacja T.12/TG.13 (Obsługa gości w obiekcie świadczącym usługi hotelarskie).
 
 ---
 
