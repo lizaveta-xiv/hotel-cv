@@ -12,23 +12,21 @@
 ---
 
 ### __O mnie:__
-Mam 18 lat, jestem uczennicą, urodziłam się na Ukrainie, przeniosłam się do Polski i od trzech lat mieszkam tutaj oraz uczę się na hotelarza. Odbywałam praktyki w dwóch trzygwiazdkowych hotelach i pracowalem w hotelu "Skala". Wykonywałam prace jako kelnerka, barmanka, pokojówka i recepcjonistka.
-
-Zawsze lubię utrzymywać porządek w pokojach i dbać o ergonomikę miejsca pracy, więc zawsze chętnie podchodzę do tego rodzaju zadań. Łatwo znajduję wspólny język z różnymi ludźmi.
+Mam 18 lat, jestem uczennicą, urodziłam się na Ukrainie, przeniosłam się do Polski i od trzech lat mieszkam tutaj oraz uczę się na hotelarza. Odbywałam praktyki w dwóch trzygwiazdkowych  hotelach i pracowałam w hotelu „Skala”. Wykonywałam pracę jako kelnerka, barmanka, pokojówka, recepcjonistka.
 
 ---
 
 ### __Kluczowe umiętności:__
 
 - Obsługa trudnych klientów.
-
-- Obliczanie faktur.
-
-- Umiętnośći obsługi urządzeń biurowych.
-
-- Robienie drinków.
-
 - Obsługa kelnerska.
+- Obsługa urządzeń technicznych.
+- Obliczenia faktur.
+- Obsługa kasy fiskalnej i wystawianie rachunków.
+- Komunikatywność i łatwość nawiązywania relacji.
+- Przygotowywanie prostych drinków z karty.
+- Parzenie kawy.
+- Dbanie o lokal.
 
 ---
 
@@ -48,7 +46,18 @@ Zawsze lubię utrzymywać porządek w pokojach i dbać o ergonomikę miejsca pra
 
 ## __Doświadczenie zawodowe:__
 
-...
+- Dbanie o czystość i estetyczny wygląd lokalu.
+- Podawanie kart menu.
+- Uzupełnianie zamówień.
+- Przyjmowanie płatności.
+- Nakrywanie stołów.
+- Noradzanie klientom.
+- Obsługa gości.
+- Obsługa bankietów i imprez okolicznościowych.
+- Pomoc w przygotowaniu sali.
+- Obsługa kasy fiskalnej, wystawianie rachunków i przyjmowanie zapłaty.
+- Radzenie sobie z uwagami niezadowolonych klientów i zgłaszanie ich do managera.
+- Robienia różnej kawy, herbaty, drinków.
 
 ---
 
